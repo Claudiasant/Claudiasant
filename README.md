@@ -1,4 +1,4 @@
-### Hi there 👋
+Olá ! Eu sou a Claudia Santana 
 
 
 - ![image](https://user-images.githubusercontent.com/95097686/229614459-7a1a4e05-fc9f-47f6-80f1-a8a42fee56dc.png)
